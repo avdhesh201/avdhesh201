@@ -9,7 +9,6 @@ A Passionate Software Engineer. Recent Graduate from the Department of Informati
   
 💬 Ask me about Tech trends, problem-solving, or web development.
 
-📫 Contact: Feel free to reach out at avdheshsingh2501@gmail.com
 
 ⚡ Fun Fact: I’m creatively inclined ;)
 
